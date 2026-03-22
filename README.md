@@ -13,5 +13,5 @@
 ❝ 　lapfox nd zootopia enthusiat :3c 　❞
 
 ㅤㅤㅤ<div align="center">
-  <img height="500" src="https://64.media.tumblr.com/f1ab0deaee60d5a80a12e8b329d73805/26c2cdbe722bcfdf-e0/s540x810/360afeeb9f1fce8a4b690542fc8a58eb23aae6cb.pnj"  />
+  <img height="500" src="https://64.media.tumblr.com/a0f7d2b710e48f93b6748e3463df5661/6e3d62a5a034ddbe-9f/s540x810/000319a246511d297440c92ca13f7671480f73ec.pnj"  />
 </div>
